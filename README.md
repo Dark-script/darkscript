@@ -1,0 +1,2 @@
+# darkscript
+Everything is illusion
